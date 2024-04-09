@@ -1,1 +1,1 @@
-# .github
+Hope College.
