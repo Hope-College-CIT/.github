@@ -1,1 +1,1 @@
-Hope College.
+Hope College Computing and Information Technology (CIT).
